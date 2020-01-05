@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou more Rexho, dil në shkallë  
 Po vijnë krushqit palë-palë!  
 Çou, Rexho çou djalo  
 Çou sugari i nanës-o!  
