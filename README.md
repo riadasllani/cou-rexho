@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou sugari i nanës-o  
 Shka ban pa ty nana-o?!  
 
 Po vijnë krushqit rrethit malit  
