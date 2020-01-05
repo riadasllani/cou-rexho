@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Po vijnë krushqit rrethit malit  
 Rexha i dekun n’grazhd të kalit.
 Çou Rexho, çou djalo  
 Çou delia i nanës-o  
