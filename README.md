@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou Rexho, çou djalo  
 Çou sokoli i nanës-o  
 Nuk ka nana tjetër-o!  
 
