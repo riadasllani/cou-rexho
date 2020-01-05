@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou sokoli i nanës-o  
 Nuk ka nana tjetër-o!  
 
 Oh more gjog-o, t’u thaftë kamba  
