@@ -2,6 +2,8 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Sot ma i mirë po m’dukesh-o!  
+
 Çou more Rexho, dil në shkallë  
 Po vijnë krushqit palë-palë!  
 Çou, Rexho çou djalo  
