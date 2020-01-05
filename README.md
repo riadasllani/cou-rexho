@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou Rexho, çou djal-o  
 Çou sugari i nanës-o   
 Sot ma djege zemrën-o!    
 
