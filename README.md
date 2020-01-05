@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Rexha i dekun n’grazhd të kalit.
 Çou Rexho, çou djalo  
 Çou delia i nanës-o  
 Sot m’a i mirë po m’dukesh-o!   
