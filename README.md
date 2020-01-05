@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou Rexho, çou djalo  
 Çou delia i nanës-o  
 Sot m’a i mirë po m’dukesh-o!   
 
