@@ -2,7 +2,9 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
-Sot ma djege zemrën-o!  
+Çou sugari i nanës-o   
+Sot ma djege zemrën-o!    
+
 Oh more krushqi hani e pini  
 Nesër Rexhën n’dhe t’ma shtini!  
 Çou Rexho, çou djalo  
