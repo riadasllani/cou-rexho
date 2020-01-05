@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou more Rexho, dil te votra  
 Merri n’gryk të shkretat motra!  
 Çou Rexho, çou djalo  
 Çou sokoli i nanës-o  
