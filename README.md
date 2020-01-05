@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Oh more gjog-o, t’u k’put jela
 Qysh ma mbyte Rexhën shkelma?!  
 Çou Rexho, çou djalo  
 Çou sugari i nanës-o  
