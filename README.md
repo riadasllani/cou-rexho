@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou Rexho, çou djalo  
 Çou sugari i nanës-o  
 Shka ban pa ty nana-o?!  
 
