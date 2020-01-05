@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+S’ma le Rexhën t’ejten proma!  
 Çou Rexho, çou djalo, çou sokoli i nanës-o!  
 Qysh ma fike derën-o?  
 
