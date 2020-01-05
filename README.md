@@ -2,6 +2,8 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Shka ban pa ty nana-o?!  
+
 Po vijnë krushqit rrethit malit  
 Rexha i dekun n’grazhd të kalit.
 Çou Rexho, çou djalo  
