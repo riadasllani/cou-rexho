@@ -2,6 +2,7 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Çou delia i nanës-o  
 Sot ma i mirë po m’dukesh-o!  
 
 Çou more Rexho, dil në shkallë  
