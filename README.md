@@ -2,6 +2,8 @@
 
 Kenga e famshme shqipetare "Cou Rexho"
 
+Sot m’a i mirë po m’dukesh-o!   
+
 Çou more Rexho, kqyr sahatin!  
 Kush t’ia hjekë nuses duvakin?  
 Çou Rexho, çou djal-o  
